@@ -11,7 +11,7 @@
 ㅤ
 
 <p align="center"> ricky / tony </p>
-<p align="center">  ㅤ <a href="https://rentry.co/thefrights">okat this is</a>  ⠀  <a href="https://strangerthings.atabook.org/">a big fat wip  ⠀</a>   ㅤ</p>
+<p align="center">  ㅤ <a href="https://rentry.co/thefrights">01</a>  ⠀  <a href="https://strangerthings.atabook.org/">02  ⠀</a>   ㅤ</p>
 
 ㅤ
 

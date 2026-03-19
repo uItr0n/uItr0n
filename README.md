@@ -12,7 +12,7 @@ the⠀⠀corners⠀⠀of⠀⠀my⠀⠀eyes⠀⠀♡⠀⠀♡
 </p>
 
 <p align="center">
-<img src="https://files.catbox.moe/wsg2ct.png"width="400"/>
+<img src="https://files.catbox.moe/curhh9.png"width="400"/>
 </p>
 
 <p align="center">

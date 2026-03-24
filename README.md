@@ -18,7 +18,6 @@ the⠀⠀corners⠀⠀of⠀⠀my⠀⠀eyes⠀⠀♡⠀⠀♡
 <p align="center">
   <sub>
 <img src="https://files.catbox.moe/lpzol5.gif"> <a href="https://strangerthings.atabook.org">ATABOOK</a>ㅤ
-<a href="https://rentry.co/-ponytownrules">pt</a>ㅤ
 <a href="https://starkroger.straw.page/">STRAWPAGE</a>ㅤ
 <a href="https://pronouns.cc/@byer">PRONOUNS</a> <img src="https://64.media.tumblr.com/124b20c5609bf54d355cd25afff5fe0b/a63a759e40e4577b-7c/s75x75_c1/a905fa1ccb1180911809b1f41c957e7982845fb5.gif">
   </sub>

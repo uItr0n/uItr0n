@@ -32,15 +32,15 @@
   <!-- DNI -->
    <br>
 <p align="left">
-<ins><b><em>dni</em></b></ins> sensitve people(some)⠀  vizziepop ⠀ tcoall  ⠀ no dni really.
+<ins><b><em>dni</em></b></ins> wip.
 
 
      
  <!-- INT -->
    <br>
 <p align="center">
-<ins><b><em>INT</em></b></ins>  𝗺𝗮𝗿𝘃𝗲𝗹  spn  sherlock holmes  mr robot  IT(2017)  trolls  eddsworld
+<ins><b><em>INT</em></b></ins>  redoinh haha
 
  
 <p align="center">
-<img src="https://i.postimg.cc/05ctCYy8/1122581344183124110.webp" style=" style="max-width: 450%;/></p>
+<img src="https://thegirlynerd.com/wp-content/uploads/2016/02/jarvis1.gif?w=640" style=" style="max-width: 450%;/></p>

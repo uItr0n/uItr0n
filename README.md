@@ -13,7 +13,7 @@
 
 
 <p align="center">
-<img src="https://64.media.tumblr.com/552b574e3a3461d6c3c7c3f3539e733f/tumblr_o91cyzS7A41unzuogo2_r1_500.gif" style="max-width: 450%; "/></p>
+<img src="https://files.catbox.moe/ftxjwz.png" style="max-width: 450%; "/></p>
 
    <div align="center">
 

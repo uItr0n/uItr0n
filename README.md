@@ -5,9 +5,8 @@
 <p align="center">
   <sub>
  <a href="https://strangerthings.atabook.org">ATABOOK</a>ㅤ
-<a href="https://starkroger.straw.page/">STRAWPAGE</a>ㅤ
-<a href="https://rentry.co/thefrights">RENTRY</a> 
-<a href="https://rentry.co/attend">MATCHING</a> 
+<a href="https://kawii.straw.page/">STRAWPAGE</a>ㅤ
+<a href="https://rentry.co/marc">RENTRY</a>  
   </sub>
 </p>
 

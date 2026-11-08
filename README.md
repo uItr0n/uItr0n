@@ -20,27 +20,6 @@
 
 
    <div align="center">
-
-  <details>
-
-   
-<summary></summary>
-
-   <!-- idk -->
-
-
-  <!-- DNI -->
-   <br>
-<p align="left">
-<ins><b><em>dni</em></b></ins> wip.
-
-
-     
- <!-- INT -->
-   <br>
-<p align="center">
-<ins><b><em>INT</em></b></ins>  redoinh haha
-
+                         paws 
+                         Marc 𓈒  ۫ 🐺
  
-<p align="center">
-<img src="https://thegirlynerd.com/wp-content/uploads/2016/02/jarvis1.gif?w=640" style=" style="max-width: 450%;/></p>
